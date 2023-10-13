@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Manimozhi98
+- 👀 I’m interested in learing new technology
+- 🌱 I’m currently pursuing Btech Computer Science and Business Systems
+- 💞️ I’m looking to collaborate on Coding 
+- 📫 How to reach me @manimozhistalin@gmail.com
